@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @singhhellhound aka rakshit singh
+- 👋 Hi, I’m @hellhound aka rakshit singh
 - 👀 I’m interested in gaming, cheat coding and app devloping
 - 🌱 I’m currently learning computer systems and coding
 - 💞️ I’m looking to collaborate on apps and websites devloping
